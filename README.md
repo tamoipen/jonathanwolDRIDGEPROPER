@@ -1,4 +1,4 @@
 NYC Bucket List
 ===============
 
-#### A list of epic / valu
+#### A list of epic / valuab
