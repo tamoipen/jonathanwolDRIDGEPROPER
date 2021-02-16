@@ -1,4 +1,4 @@
 NYC Bucket List
 ===============
 
-#### A li
+#### A list
