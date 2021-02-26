@@ -1,4 +1,4 @@
 NYC Bucket List
 ===============
 
-#### A list of epic / valuable / m
+#### A list of epic / valuable / mean
