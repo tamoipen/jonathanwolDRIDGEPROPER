@@ -1,4 +1,4 @@
 NYC Bucket List
 ===============
 
-#### A list of epic / valuable / meaningful things to do, see, and eat in New Yor
+#### A list of epic / valuable / meaningful things to do, see, and eat in New York 
