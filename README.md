@@ -6,4 +6,4 @@ NYC Bucket List
  Most are things I've done / seen / eaten and loved in NYC.
  Things I Haven't Done Yet are exactly that.
 
-#### Things 
+#### Things t
