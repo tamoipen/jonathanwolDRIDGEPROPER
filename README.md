@@ -7,4 +7,4 @@ NYC Bucket List
  Things I Haven't Done Yet are exactly that.
 
 #### Things to Do
-* B
+* Bike in
