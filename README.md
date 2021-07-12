@@ -8,4 +8,4 @@ NYC Bucket List
 
 #### Things to Do
 * Bike in Central Park
-* **Boat to IKE
+* **Boat to IKEA*
