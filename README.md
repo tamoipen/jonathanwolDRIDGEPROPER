@@ -10,4 +10,4 @@ NYC Bucket List
 * Bike in Central Park
 * **Boat to IKEA**
 * **Cruise around Manhattan**
-* Ice Skate in Cent
+* Ice Skate in Central 
