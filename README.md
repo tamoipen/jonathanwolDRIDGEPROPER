@@ -11,4 +11,4 @@ NYC Bucket List
 * **Boat to IKEA**
 * **Cruise around Manhattan**
 * Ice Skate in Central Park
-* Mid
+* Midni
