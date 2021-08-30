@@ -12,4 +12,4 @@ NYC Bucket List
 * **Cruise around Manhattan**
 * Ice Skate in Central Park
 * Midnight Yoga at Laughing Lotus
-* Run the Brooklyn B
+* Run the Brooklyn Bridge
