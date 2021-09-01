@@ -13,4 +13,4 @@ NYC Bucket List
 * Ice Skate in Central Park
 * Midnight Yoga at Laughing Lotus
 * Run the Brooklyn Bridge
-* Run in Centra
+* Run in Central P
