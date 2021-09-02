@@ -14,4 +14,4 @@ NYC Bucket List
 * Midnight Yoga at Laughing Lotus
 * Run the Brooklyn Bridge
 * Run in Central Park
-*
+* R
