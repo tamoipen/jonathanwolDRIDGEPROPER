@@ -16,4 +16,4 @@ NYC Bucket List
 * Run in Central Park
 * Run the perimeter of Manhattan
 * Staten Island Ferry
-* **Walk the Brook
+* **Walk the Brooklyn
