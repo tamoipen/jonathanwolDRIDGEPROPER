@@ -16,4 +16,4 @@ NYC Bucket List
 * Run in Central Park
 * Run the perimeter of Manhattan
 * Staten Island Ferry
-* **Walk the Brooklyn Bridge** - *for fun, for exercise, to get to a meeting, to visit
+* **Walk the Brooklyn Bridge** - *for fun, for exercise, to get to a meeting, to visit a b
