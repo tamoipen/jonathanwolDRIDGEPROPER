@@ -21,4 +21,4 @@ NYC Bucket List
 
 #### Places to Eat
 * Babbo
-* Bur
+* Burger
