@@ -23,4 +23,4 @@ NYC Bucket List
 * Babbo
 * Burger Joint at Le Parker Meridien
 * Candle Cafe
-* Caracas Are
+* Caracas Arepas
