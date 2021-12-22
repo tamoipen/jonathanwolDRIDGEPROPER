@@ -24,4 +24,4 @@ NYC Bucket List
 * Burger Joint at Le Parker Meridien
 * Candle Cafe
 * Caracas Arepas Bar
-* City Bakery - *h
+* City Bakery - *hot c
