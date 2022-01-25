@@ -25,4 +25,4 @@ NYC Bucket List
 * Candle Cafe
 * Caracas Arepas Bar
 * City Bakery - *hot chocolate! deliciously intense + has a gigantic homemade marshmallow on top*
-* Grimald
+* Grimaldi's
