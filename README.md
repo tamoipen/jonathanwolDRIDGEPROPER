@@ -26,4 +26,4 @@ NYC Bucket List
 * Caracas Arepas Bar
 * City Bakery - *hot chocolate! deliciously intense + has a gigantic homemade marshmallow on top*
 * Grimaldi's
-* Harry's Cafe for br
+* Harry's Cafe for brunch,
