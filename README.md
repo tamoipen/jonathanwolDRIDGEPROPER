@@ -27,4 +27,4 @@ NYC Bucket List
 * City Bakery - *hot chocolate! deliciously intense + has a gigantic homemade marshmallow on top*
 * Grimaldi's
 * Harry's Cafe for brunch, and for steak
-* Ivo & Lulu
+* Ivo & Lulu 
