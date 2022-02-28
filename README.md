@@ -28,4 +28,4 @@ NYC Bucket List
 * Grimaldi's
 * Harry's Cafe for brunch, and for steak
 * Ivo & Lulu - *be sure to BYOB*
-* 
+* Jean Go
