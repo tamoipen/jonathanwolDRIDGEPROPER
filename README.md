@@ -30,4 +30,5 @@ NYC Bucket List
 * Ivo & Lulu - *be sure to BYOB*
 * Jean Gorges
 * **Magnolia cupcakes**
-* The Met rooftop 
+* The Met rooftop bar
+* P
