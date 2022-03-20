@@ -31,4 +31,4 @@ NYC Bucket List
 * Jean Gorges
 * **Magnolia cupcakes**
 * The Met rooftop bar
-* Peacock Alley brunch at 
+* Peacock Alley brunch at th
