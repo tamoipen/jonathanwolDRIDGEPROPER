@@ -32,4 +32,4 @@ NYC Bucket List
 * **Magnolia cupcakes**
 * The Met rooftop bar
 * Peacock Alley brunch at the Waldorf Astoria
-* [Piccolo Cafe](https://maps.google.com/maps?ie=UTF
+* [Piccolo Cafe](https://maps.google.com/maps?ie=UTF8&q=
