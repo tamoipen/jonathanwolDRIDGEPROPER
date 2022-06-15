@@ -38,4 +38,4 @@ NYC Bucket List
 * Sylvia's
 
 
-#### Pl
+#### Places 
