@@ -38,4 +38,4 @@ NYC Bucket List
 * Sylvia's
 
 
-#### Places to Visit / 
+#### Places to Visit / See
