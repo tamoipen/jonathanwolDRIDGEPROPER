@@ -40,4 +40,4 @@ NYC Bucket List
 
 #### Places to Visit / See
 * Broadway show
-* Concert at Webster Ha
+* Concert at Webster Hal
