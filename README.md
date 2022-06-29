@@ -41,4 +41,4 @@ NYC Bucket List
 #### Places to Visit / See
 * Broadway show
 * Concert at Webster Hall
-* Coney Isla
+* Coney Island
