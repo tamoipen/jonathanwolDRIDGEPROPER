@@ -42,4 +42,4 @@ NYC Bucket List
 * Broadway show
 * Concert at Webster Hall
 * Coney Island
-* G
+* Gran
