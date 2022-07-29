@@ -43,4 +43,4 @@ NYC Bucket List
 * Concert at Webster Hall
 * Coney Island
 * Grant's Tomb
-* McSorley's - *especially if you're a lady because you've only been allowed in there for a short time -_- and if you mis
+* McSorley's - *especially if you're a lady because you've only been allowed in there for a short time -_- and if you miss fr
