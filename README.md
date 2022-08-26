@@ -45,4 +45,5 @@ NYC Bucket List
 * Grant's Tomb
 * McSorley's - *especially if you're a lady because you've only been allowed in there for a short time -_- and if you miss frat houses*
 * Madison Square Garden - *Knicks game + footlong hotdogs + beer preferred*
-* Marriott Vie
+* Marriott View
+* M
