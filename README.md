@@ -48,4 +48,4 @@ NYC Bucket List
 * Marriott View
 * Museum of Sex
 * Museum of Modern Art
-* Museum of Nat
+* Museum of Natural
