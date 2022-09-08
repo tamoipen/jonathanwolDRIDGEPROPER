@@ -49,4 +49,5 @@ NYC Bucket List
 * Museum of Sex
 * Museum of Modern Art
 * Museum of Natural History
-* Off-Broadway sh
+* Off-Broadway show
+* 
