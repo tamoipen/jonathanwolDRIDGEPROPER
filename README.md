@@ -50,4 +50,4 @@ NYC Bucket List
 * Museum of Modern Art
 * Museum of Natural History
 * Off-Broadway show
-* Opera at Lincoln Cente
+* Opera at Lincoln Center
