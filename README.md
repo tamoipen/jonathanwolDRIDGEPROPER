@@ -51,4 +51,4 @@ NYC Bucket List
 * Museum of Natural History
 * Off-Broadway show
 * Opera at Lincoln Center
-* Rockefel
+* Rockefelle
