@@ -52,4 +52,4 @@ NYC Bucket List
 * Off-Broadway show
 * Opera at Lincoln Center
 * Rockefeller Center Christmas Tree
-* Rooftop Bars - 
+* Rooftop Bars - *as 
