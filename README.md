@@ -52,4 +52,5 @@ NYC Bucket List
 * Off-Broadway show
 * Opera at Lincoln Center
 * Rockefeller Center Christmas Tree
-* Rooftop Bars - *as many as you can find, e.g. Empire Hotel, 230 Fifth, the Me
+* Rooftop Bars - *as many as you can find, e.g. Empire Hotel, 230 Fifth, the Met*
+* 
