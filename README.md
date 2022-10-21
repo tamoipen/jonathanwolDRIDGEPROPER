@@ -55,4 +55,5 @@ NYC Bucket List
 * Rooftop Bars - *as many as you can find, e.g. Empire Hotel, 230 Fifth, the Met*
 * 9/11 site & Memorial
 * **St. John's Cathedral**
-* The Str
+* The Strand
+*
