@@ -56,4 +56,4 @@ NYC Bucket List
 * 9/11 site & Memorial
 * **St. John's Cathedral**
 * The Strand
-* Villag
+* Village Tou
