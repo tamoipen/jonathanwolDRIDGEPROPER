@@ -60,4 +60,4 @@ NYC Bucket List
 
 ### Things I Haven't Done Yet
 
-#### Th
+#### Thing
