@@ -61,4 +61,4 @@ NYC Bucket List
 ### Things I Haven't Done Yet
 
 #### Things to Do
-* Bike the Five Bor
+* Bike the Five Boroug
