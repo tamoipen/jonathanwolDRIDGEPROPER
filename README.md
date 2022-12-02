@@ -62,4 +62,4 @@ NYC Bucket List
 
 #### Things to Do
 * Bike the Five Boroughs
-* Boat in Central Pa
+* Boat in Central Park
