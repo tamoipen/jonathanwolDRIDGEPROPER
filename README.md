@@ -64,4 +64,5 @@ NYC Bucket List
 * Bike the Five Boroughs
 * Boat in Central Park
 
-#### Places to Visit / Se
+#### Places to Visit / See
+*
