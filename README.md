@@ -65,4 +65,4 @@ NYC Bucket List
 * Boat in Central Park
 
 #### Places to Visit / See
-* Brookl
+* Brooklyn Bot
