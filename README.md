@@ -66,4 +66,4 @@ NYC Bucket List
 
 #### Places to Visit / See
 * Brooklyn Botanical Gardens
-* Brooklyn
+* Brooklyn Brew
