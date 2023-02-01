@@ -68,4 +68,4 @@ NYC Bucket List
 * Brooklyn Botanical Gardens
 * Brooklyn Brewery
 * Governor's Island
-* Hack t
+* Hack the 
